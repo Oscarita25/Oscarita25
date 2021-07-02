@@ -5,12 +5,14 @@ I am born 2nd May 2003 in Germany,
 and I started out Programming with creating some **Minecraft modifications,** 
 most of them (almost all) didn't really publish
 as i was just 13-15 and i didn't have the motivation and time to keep going and programm all day.
+So I started doing things that interested me and motivated me.
 
 ![alt text](https://github.com/Oscarita25/Oscarita25/blob/main/Explosion%20quirk.png?raw=true)
 
-### What has been motivating me
+### What has been motivating me...
 
 It always has started for me with a little curiousity and then just straight up learning most of the stuff of some docs or wiki's for whatever i was trying to learn.
+There had to be something really interesting about it, something i want to find out or i found cool and want to do myself.
 At some point i got into 3d modeling with blender (not that advanced but good enough to make some models) , Video editing with Premiere Pro/Sony Vegas 13 and Image
 editing with Gimp at first and then moving on to photoshop. 
 
@@ -19,9 +21,9 @@ editing with Gimp at first and then moving on to photoshop.
 
 ### Gaming, Youtube and Video editing
 
-My Alt Name for Gaming is Oscarita25/Modn4rstuff/Yummymuffin25.
-I have created some Youtube Channels but most of them were stupid attempts at doing something i didn't want to put effort in.
-those the ones what i am pretty ok with sharing, the other ones are pretty easy to find with my alt names and are kind of cringe (forgot the password and can't delete):
+If you are for somereason interested my Alt Name for Gaming is Oscarita25/Modn4rstuff/Yummymuffin25.
+I have created some Youtube Channels(who did not?) but most of them were stupid attempts at doing something i didn't want to put effort in or i simply lost my password.
+those the ones what i am pretty ok with sharing, the other ones are pretty easy to find with my alt names and are kind of cringe:
 
 #### The Channel maily for my gaming:
 
