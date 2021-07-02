@@ -1,5 +1,5 @@
 
-# My name is Oscar and i am a developer that like to create just stuff that interests me.
+# My name is Oscar....
 
 I am born 2nd May 2003 in Germany,
 and I started out Programming with creating some **Minecraft modifications,** 
